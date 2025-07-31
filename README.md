@@ -1,1 +1,1 @@
-### "The shadow damage was to the brain, Hide, I'll always be there."
+> "A trail of sickness leading to me, if I am haunted, then you'll see..."
